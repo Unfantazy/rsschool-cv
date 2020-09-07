@@ -1,1 +1,1 @@
-# rsschool-cv
+https://unfantazy.github.io/rsschool-cv/
